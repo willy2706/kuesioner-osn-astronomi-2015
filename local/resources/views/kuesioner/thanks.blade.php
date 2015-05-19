@@ -1,0 +1,1 @@
+Terima kasih telah mengisi kuesioner ini! Semoga anda meraih hasil terbaik di osn 2015!
